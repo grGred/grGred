@@ -6,7 +6,7 @@
 
 💬 Ask me about **cross-chain**
 
-📫 How to reach me: **[t.me/grged](https://t.me/grged)**
+📫 How to reach me: **[t.me/gr_gred](https://t.me/gr_gred)**
 
 ⚡ Fun fact: Lost 200$ by WEX closing withdrawals in 2018 and joined crypto to take my loss back
 
